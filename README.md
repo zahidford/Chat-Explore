@@ -1,4 +1,4 @@
 # Chat-Explore
-My Personal Social Network
+I am the Founder of www.chatexplore.com
 
 Visit www.chatexplore.com
